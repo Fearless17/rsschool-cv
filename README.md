@@ -1,1 +1,1 @@
-https://Fearless17.github.io/rsschool-cv/cv
+https://Fearless17.github.io/rsschool-cv/
